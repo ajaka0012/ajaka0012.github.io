@@ -1,0 +1,1 @@
+# ajaka0012.github.io
